@@ -22,3 +22,6 @@ https://www.youtube.com/@pvptemple
 
 # Twitch:
 https://www.twitch.tv/thepvptemple
+
+
+PVPTEMPLE NO LONGER OWNED BY LINEX STUDIOS.
